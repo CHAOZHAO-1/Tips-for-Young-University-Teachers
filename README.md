@@ -1,5 +1,3 @@
-# Tips-for-Young-University-Teachers
-观看B站Up主[老司机耿进财]的系列视频摘录的笔记
 **注：** 这部分内容是观看 B 站 Up 主 [老司机耿进财](https://space.bilibili.com/81249447/channel/collectiondetail?sid=2454838&ctype=0) 的系列视频摘录的笔记。若有侵权，请联系我删除。
 
 1. 什么样的博士适合当高校教师
